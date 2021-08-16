@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CollinKasbergen
 - 👀 I’m interested in doing busines
-- 🌱 I’m currently learning spanish
+- 🌱 I’m currently learning Berbers
 - 💞️ I’m looking to collaborate on work related stuff
 - 📫 How to reach me 0614929260
 
